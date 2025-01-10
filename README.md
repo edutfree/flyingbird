@@ -4,7 +4,7 @@
 
 永久官网：[https://fbweb02.flyingbird.la](https://xuv.cc/out/bird)
 
-最新直连官网：[flyingbird.cc](https://fbinv02.fbaff.cc/auth/register?code=xMqvfNBk)
+最新直连官网：[flyingbird.cc](https://xuv.cc/out/bird)
 
 [![飞鸟机场机场官网地址](flyingbird_20241012_203514.png)](https://xuv.cc/out/bird)
 
