@@ -1,4 +1,4 @@
-# 飞鸟机场官网地址2025最新入口 + 限时优惠码
+# flyingbird飞鸟机场官网地址 + 限时优惠码
 
 永久官网：[https://fbweb02.flyingbird.la](https://xuv.cc/out/bird)
 
