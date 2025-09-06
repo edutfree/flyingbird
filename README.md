@@ -4,8 +4,6 @@
 
 最新直连官网：[flyingbird.cc](https://xuv.cc/out/bird)
 
-[![飞鸟flyingbird官网地址](flyingbird_20241012_203514.png)](https://xuv.cc/out/bird)
-
 ## 飞鸟flyingbird优惠码
 
 1: 月/季/半年付 85折 , 优惠码：fb257785](https://xuv.cc/out/bird)  可重复使用5次
