@@ -1,6 +1,6 @@
 # flyingbird飞鸟官网地址 + 限时优惠码
 
-永久官网：[https://fbweb02.flyingbird.la](https://xuv.cc/out/bird)
+永久官网：[flyingbird.la](https://xuv.cc/out/bird)
 
 最新直连官网：[flyingbird.cc](https://xuv.cc/out/bird)
 
