@@ -6,11 +6,11 @@
 
 ## 飞鸟flyingbird优惠码
 
-flyingbird双十一优惠促销活动开启！
+flyingbird双旦优惠促销活动开启！
 
-1：月/季/半年付 85折，优惠码：[fb25111185](https://xuv.cc/out/bird)  可重复使用5次
+1：月/季/半年付 85折，优惠码：[fb250085](https://xuv.cc/out/bird)  可重复使用5次
 
-2：年付8折（站内折上折，高达64折 ）优惠码：[fb25111180](https://xuv.cc/out/bird)  可重复使用5次
+2：年付8折（站内折上折，高达64折 ）优惠码：[fb250080](https://xuv.cc/out/bird)  可重复使用5次
 
 
 ---
