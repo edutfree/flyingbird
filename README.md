@@ -4,14 +4,15 @@
 
 最新直连官网：[flyingbird.cc](https://xuv.cc/out/bird)
 
+最新直连官网2：[fbweb.cc](https://www.fbweb.cc/auth/register?code=aF9gPq4l)
+
 ## 飞鸟flyingbird优惠码
 
-flyingbird双旦优惠促销活动开启！
+flyingbird 飞鸟春节活动开启！！！祝大家新春快乐！阖家团圆！
 
-1：月/季/半年付 85折，优惠码：[fb250085](https://xuv.cc/out/bird)  可重复使用5次
+1：月/季/半年付 85折，优惠码：[fbcj2685](https://xuv.cc/out/bird)  可重复使用5次
 
-2：年付8折（站内折上折，高达64折 ）优惠码：[fb250080](https://xuv.cc/out/bird)  可重复使用5次
-
+2：年付8折（站内折上折，高达64折 ）优惠码：[fbcj2680](https://xuv.cc/out/bird)  可重复使用5次
 
 ---
 
