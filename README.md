@@ -4,23 +4,17 @@
 
 最新直连官网：[flyingbird.cc](https://xuv.cc/out/bird)
 
-最新直连官网2：[fbweb.cc](https://www.fbweb.cc/auth/register?code=aF9gPq4l)
+最新直连官网2：[fbweb.cc](https://fbweb03.flyingbird.id/auth/register?code=aF9gPq4l)
 
 ## 飞鸟flyingbird优惠码
 
 flyingbird 飞鸟春节活动开启！！！祝大家新春快乐！阖家团圆！
 
+
 1：月/季/半年付 85折，优惠码：[fbcj2685](https://xuv.cc/out/bird)  可重复使用5次
 
 2：年付8折（站内折上折，高达64折 ）优惠码：[fbcj2680](https://xuv.cc/out/bird)  可重复使用5次
 
----
-
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
-
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
-
----
 
 ## 飞鸟flyingbird加速器特色简介
 
