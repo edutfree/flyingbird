@@ -1,19 +1,18 @@
 # flyingbird飞鸟官网地址 + 限时优惠码
 
-永久官网：[flyingbird.la](https://xuv.cc/out/bird)
+永久官网：[flyingbird.la](https://xuv.cc/out/xin)
 
-最新直连官网：[flyingbird.cc](https://xuv.cc/out/bird)
+最新直连官网：[flyingbird.cc](https://xuv.cc/out/xin)
 
-最新直连官网2：[fbweb.cc](https://fbweb03.flyingbird.id/auth/register?code=aF9gPq4l)
+最新直连官网2：[fbweb.cc](https://xuv.cc/out/mojie)
 
 ## 飞鸟flyingbird优惠码
 
 flyingbird 飞鸟春节活动开启！！！祝大家新春快乐！阖家团圆！
 
+1：月/季/半年付 85折，优惠码：[fbcj2685](https://xuv.cc/out/xin)  可重复使用5次
 
-1：月/季/半年付 85折，优惠码：[fbcj2685](https://xuv.cc/out/bird)  可重复使用5次
-
-2：年付8折（站内折上折，高达64折 ）优惠码：[fbcj2680](https://xuv.cc/out/bird)  可重复使用5次
+2：年付8折（站内折上折，高达64折 ）优惠码：[fbcj2680](https://xuv.cc/out/xin)  可重复使用5次
 
 
 ## 飞鸟flyingbird加速器特色简介
@@ -98,7 +97,7 @@ flyingbird 飞鸟春节活动开启！！！祝大家新春快乐！阖家团圆
     </tbody>
 </table>
 
-[![飞鸟套餐价格](flyingbird_20241012_203929.png)](https://xuv.cc/out/bird)
+[![飞鸟套餐价格](flyingbird_20241012_203929.png)](https://xuv.cc/out/xin)
 
 ---
 
